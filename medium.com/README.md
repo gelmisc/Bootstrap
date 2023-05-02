@@ -1,1 +1,1 @@
-![medium.com clone project](medium.com/medium.jpg)
+![medium.com clone project](https://ibb.co/sWrsJNh)
