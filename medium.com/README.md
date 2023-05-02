@@ -1,1 +1,1 @@
-![medium.com clone project](https://ibb.co/sWrsJNh)
+![medium.com clone project](https://i.ibb.co/HhQGpb0/medium.jpg)
